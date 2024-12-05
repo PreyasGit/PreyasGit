@@ -1,4 +1,4 @@
-![花譜 1st ONE-MAN LIVE「不可解」- 神様(東京ゲゲゲイカバー) — Suguru Asakura](https://github.com/user-attachments/assets/dd1b79d9-2ce2-4e45-ab78-0d0e79005d68)
+![_](https://github.com/user-attachments/assets/adc8269f-fa1a-42f9-b261-deea7dcb319f)
 
 
 # 💫 About Me:
